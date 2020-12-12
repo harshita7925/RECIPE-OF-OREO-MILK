@@ -1,0 +1,2 @@
+# OREO-MILK-RECIPE
+          Making oreo milkshake is quite easy.You simply add vanilla ice-cream,milk of your choice and a few Oreo cookies.Then,blend until your desired consistency is reached.If you want it to have a few chunks of cookie,then just pulse a few times in the blender.If you want them mostly smooth,just blend a little more.If you want it to be chocolaty,then you can add chocolate syrup or chocolate ice-cream into the mix.You can add oreo biscuit in it to decorate it.
